@@ -1,6 +1,6 @@
 @FloodCreations
-- 📫 How to reach me ...
+- 📫 floodcreations@pm.me
 
 <!---
-You can click the Preview link to take a look at your changes.
+Thanks you for your time and attention!
 --->
